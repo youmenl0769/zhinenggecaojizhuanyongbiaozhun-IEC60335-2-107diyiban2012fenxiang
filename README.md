@@ -1,0 +1,1 @@
+# zhinenggecaojizhuanyongbiaozhun-IEC60335-2-107diyiban2012fenxiang
